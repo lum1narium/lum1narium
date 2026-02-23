@@ -6,6 +6,9 @@
 - 😄 Pronouns: ...they/them or she/they ze/zem
 - ⚡ Fun fact: ...i have https://en.pronouns.page/@juggalettes
 
+
+   hellllooo im tomo! im currently doing pony coms for art pieces of any of my ocs !!
+   if u want to know more please add me on discord : juggalettes
 <!---
 lum1narium/lum1narium is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
