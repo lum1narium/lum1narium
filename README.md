@@ -1,4 +1,5 @@
-<img width="490" height="490" alt="image" src="https://github.com/user-attachments/assets/1f34d21d-05dc-48f0-ae62-cb3a0adb48c2" />
+<img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/05951a0e-0ae7-4c4a-aa28-475699271221" />
+
 ૮( ˃ ꒳ ˂)ა
 ◟/づ🦴 𝑊𝑒𝑙𝑐𝑜𝑚𝑒 𝑡𝑜 𝑚𝑦 𝑝𝑟𝑜𝑓𝑖𝑙𝑒 𝑠𝑖𝑡𝑒 ⭐️➰
  𝘯𝘢𝘮𝘦：izora
